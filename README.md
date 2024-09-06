@@ -3,8 +3,7 @@
 
 - 🌱 I’m currently just exploring my options
 
-- 💞️ I’m looking to collaborate on 
-- ⚡ Fun fact: 
+- ⚡ Fun fact: i really love games 👀 
 
 <!---
 DevAgamnoor/DevAgamnoor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
